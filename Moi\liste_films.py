@@ -1,0 +1,1 @@
+[['/film/fichefilm_gen_cfilm=2606.html',' Guerre et Paix (Voyna i mir) 1967 de Sergei Bondarchuk avec Sergei Bondarchuk, Lyudmila Savelyeva  '],['/film/fichefilm_gen_cfilm=27201.html',' Guy Debord, son art et son temps 1995 de Brigitte Cornand  ']]
